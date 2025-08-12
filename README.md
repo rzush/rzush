@@ -20,7 +20,7 @@
 
 <img src="https://files.catbox.moe/lhroof.png"
   align="right"
-  width="500" 
+  width="550" 
   height="700"
   />
   </br>
