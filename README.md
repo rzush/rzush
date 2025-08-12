@@ -39,7 +39,7 @@
 <h5><align="left"> My favorite animals are Sharks & Goats. I enjoy sitting w/ friends, playful bullying (let me know if you're Uncomf w/ it!), and Monster n' other Energy drinks! </align></h5></h6>
 <h5><align="left">I love to chat with anymore, please don't be scared to spark up a chat (UNLESS -> Im on DNI) and become my friend! </align></h5></h6>
 <h5><align="left"> If I ever forget to reply, please feel free to bump a message!! </align></h5></h6>
-<h3 align="center"><strong><u>Intrests!</u></strong> <img src="https://files.catbox.moe/kekc6s.webp"/><img src="https://files.catbox.moe/45zs7o.webp"/></h3>
+<h3 align="center"><strong><u>Interests!</u></strong> <img src="https://files.catbox.moe/kekc6s.webp"/><img src="https://files.catbox.moe/45zs7o.webp"/></h3>
 <h6 align="center"> Oi oi!
 <h4><align="left">Games I Enjoy; </align></h5></h6>
 <h5><align="left"> Roblox > Pressure, Phighting, Untilited Baking Game, Somthing Evil Will Hapen (SEWH), BlockTales, 99 Nights in The Forest Grace (Dozer>You), Depth Spelunking, Dandy's World, Guts & BlackPowder, Lost Currents</align></h5></h6>
