@@ -12,6 +12,7 @@
 <h5><ul><align="left"> 1. I love tonetags, I use them for myself. If you don't know the tag, just ask!</h5>
 <h5><ul><align="left"> 2. I am not very intune with others, please let me know if am making you uncomfortable!</h5>
 <h5><ul><align="left"> 3. Please follow basic DNI Criteria!
+<h5><ul><align="left"> 4. Please try not to cover me/do not sit with me without asking (Friends are always welcome). I like sitting on the sides/in the front more ^^
 </align></ul>
 </h5>
 </h6>
