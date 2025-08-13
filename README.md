@@ -47,4 +47,4 @@
 <h5><align="left"> Dead By Daylight, Minecraft, MineSweeper, Slime Rancher (1&2), OverWatch 2, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR]</align></h5></h6>
 </p>
 <h4><align="left"> Comfs; </align></h5></h6>
-<h5><align="left"> Dozer (Grace), HandPlates!Gaser (UT), AnTenna (DR), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), StickMasterLuke (Rblx Admin) </align></h5></h6>
+<h5><align="left"> Dozer (Grace), HandPlates!Gaster (UT), AnTenna (DR), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), StickMasterLuke (Rblx Admin) </align></h5></h6>
