@@ -8,7 +8,7 @@
 <h3 align="center"><strong><u>BYFI!</u></strong> <img src="https://files.catbox.moe/5nrfyp.webp"/><img src="https://files.catbox.moe/colkk3.webp"/></h3>
 <h6 align="center">There's only one left! How dubious... 
 <h5 align="center"> Prns >> He/It ~ AroAce, TransMasc <img src="https://files.catbox.moe/9hvulv.webp" width="30" height="60" /> <img src="https://files.catbox.moe/ufauhd.webp" width="30" height="60" /> 
-  <h5 align="center">Dec, 28th, 2024 >> Taken
+  <h5 align="center">Best Bachlor of 2025
 <h5><ul><align="left"> 1. I love tonetags, I use them for myself. If you don't know the tag, just ask!</h5>
 <h5><ul><align="left"> 2. I am not very intune with others, please let me know if am making you uncomfortable!</h5>
 <h5><ul><align="left"> 3. Please follow basic DNI Criteria!
